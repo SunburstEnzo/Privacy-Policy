@@ -1,4 +1,4 @@
-# *** **** Privacy Policy
+# "and Chill" Privacy Policy
 
 
 ## What is collected
